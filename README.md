@@ -1,0 +1,7 @@
+- 👋 Hi, I’m **@Muhammad-Hamza-designer**
+- 👀 I’m interested in crafting visually engaging, user-friendly websites that boost business goals.
+- 🌱 I’m currently deepening my expertise in advanced WordPress techniques and web animations.
+- 💞️ I’m looking to collaborate on exciting web design projects that challenge creativity and drive results.
+- 📫 Reach me at [hm5257627@gmail.com] or connect with me on LinkedIn.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm a coffee enthusiast who loves solving complex design problems over a strong cup!
